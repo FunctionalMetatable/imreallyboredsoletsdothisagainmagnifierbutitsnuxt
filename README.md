@@ -1,0 +1,2 @@
+# imreallyboredsoletsdothisagainmagnifierbutitsnuxt
+Created with CodeSandbox
